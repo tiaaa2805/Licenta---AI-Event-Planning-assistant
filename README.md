@@ -1,0 +1,1 @@
+# Licenta---AI-Event-Planning-assistant
